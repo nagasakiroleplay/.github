@@ -22,6 +22,3 @@ Kami selalu terbuka untuk kontribusi. Jika Anda ingin membantu dalam pengembanga
 
 Terima kasih telah menjadi bagian dari Nagasaki Roleplay!
 
----
-
-_Disclaimer: Nagasaki Roleplay adalah proyek komunitas yang tidak terkait dengan Rockstar Games atau GTA 5._
